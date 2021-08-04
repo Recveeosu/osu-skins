@@ -18,3 +18,5 @@ Skins that I haved used and use right now
 ![](https://osu.ppy.sh/ss/16911628/449b)
 # [-+Aesthetic 1.3.9](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
 ![](https://camo.githubusercontent.com/e9c3928c5b6c3a7fdbf67f8ca89f9e38f9bbac01438c4cf65eec51f32703b08f/68747470733a2f2f6f73752e7070792e73682f73732f31343131383233342f34313465)
+# [Azer 2018](http://www.mediafire.com/file/9qo0f4n48d5u5to/Azer_2018.osk/file)
+![](https://osu.ppy.sh/ss/16911635/e6ea)
