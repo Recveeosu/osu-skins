@@ -22,3 +22,5 @@ Skins that I haved used and use right now
 ![](https://osu.ppy.sh/ss/16911635/e6ea)
 # [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/16911641/49d2)
+# [Minimal Weeb: Chiyo Sakura](https://puu.sh/BySmB/9a56873982.osk)
+![](https://osu.ppy.sh/ss/16911652/7cb8)
