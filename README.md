@@ -10,3 +10,5 @@ Skins that I haved used and use right now
 ![](https://skins.osuck.net/uploads/posts/2019-10/1570974990_screenshot6784.jpg)
 # [MonkoPring](https://monko.s-ul.eu/ivkMRcKs)
 ![](https://osu.ppy.sh/ss/16911609/3147)
+# [Aristia(Edit)+trail](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
+![](https://osu.ppy.sh/ss/16911616/ff60)
