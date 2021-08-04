@@ -12,3 +12,5 @@ Skins that I haved used and use right now
 ![](https://osu.ppy.sh/ss/16911609/3147)
 # [Aristia(Edit)+trail](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
 ![](https://osu.ppy.sh/ss/16911616/ff60)
+# [- Dumii and Gayz v3](https://waa.ai/XzKA)
+![](https://osu.ppy.sh/ss/16911623/c3cc)
