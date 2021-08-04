@@ -14,5 +14,5 @@ Skins that I haved used and use right now
 ![](https://osu.ppy.sh/ss/16911616/ff60)
 # [- Dumii and Gayz v3](https://waa.ai/XzKA)
 ![](https://osu.ppy.sh/ss/16911623/c3cc)
-# [- stoofvarv](https://mega.nz/file/RDgSgQhb#IgIQOoVFT_abhiAzmR8qEFQ-E-Y4vmiAxFmHuxfV83o)
+# [- stoofvarv -](https://mega.nz/file/RDgSgQhb#IgIQOoVFT_abhiAzmR8qEFQ-E-Y4vmiAxFmHuxfV83o)
 ![](https://osu.ppy.sh/ss/16911628/449b)
