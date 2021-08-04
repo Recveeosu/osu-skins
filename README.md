@@ -24,5 +24,7 @@ Skins that I haved used and use right now
 ![](https://osu.ppy.sh/ss/16911641/49d2)
 # [Minimal Weeb: Chiyo Sakura](https://puu.sh/BySmB/9a56873982.osk)
 ![](https://osu.ppy.sh/ss/16911652/7cb8)
-# [Minimal Weeb - Kumin Tsuyuri](https://puu.sh/to0is/1e4f955bf9.osk)
+# [Minimal Weeb: Kumin Tsuyuri](https://puu.sh/to0is/1e4f955bf9.osk)
 ![](https://osu.ppy.sh/ss/16911660/3c05)
+# [- # The Journey of Elaina 『MJ』 # - ](http://www.mediafire.com/file/m6rbsrs226vii6d/-+++++++++++#+The+Journey+of+Elaina+%E3%80%8EMJ%E3%80%8F+v1.1+#+++++++++++-.osk/file)
+![](https://osu.ppy.sh/ss/16911674/af38)
