@@ -27,4 +27,4 @@ Skins are in random order.
 # [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/16911641/49d2)
 # [Raiden Shogun - Baal](https://drive.google.com/file/d/1n-4cuTIq4IiBH-BvNgHF3mSUwEAHWDa5/view)
-! [](https://i.ppy.sh/c4bb0f1835499ceb7b5c340c71aed221d41e5881/68747470733a2f2f692e696d6775722e636f6d2f4c47624f4542302e706e67)
+![](https://i.ppy.sh/c4bb0f1835499ceb7b5c340c71aed221d41e5881/68747470733a2f2f692e696d6775722e636f6d2f4c47624f4542302e706e67)
