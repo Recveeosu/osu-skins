@@ -28,3 +28,5 @@ Skins are in random order.
 ![](https://osu.ppy.sh/ss/16911641/49d2)
 # [Amaestric 1.1](http://www.mediafire.com/file/bzv2mm3cbweht1e/Abyssal_10-02-2018.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2018-09/1537794922_cpoih6g.jpg)
+# [GanyuTeks:Futur Céleste](https://drive.google.com/file/d/1iUMfBUmwdKqpQ11xSOSNLtjmdiGlcqsD/view)
+![](https://i.imgur.com/UF63auq.jpeg)
