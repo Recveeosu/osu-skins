@@ -26,3 +26,5 @@ Skins are in random order.
 ![](https://osu.ppy.sh/ss/16911635/e6ea)
 # [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/16911641/49d2)
+# [Amaestric 1.1](http://www.mediafire.com/file/bzv2mm3cbweht1e/Abyssal_10-02-2018.osk/file)
+![](https://skins.osuck.net/uploads/posts/2018-09/1537794922_cpoih6g.jpg)
