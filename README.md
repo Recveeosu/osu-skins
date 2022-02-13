@@ -30,3 +30,5 @@ Skins are in random order.
 ![](https://skins.osuck.net/uploads/posts/2018-09/1537794922_cpoih6g.jpg)
 # [GanyuTeks:Futur Céleste](https://drive.google.com/file/d/1iUMfBUmwdKqpQ11xSOSNLtjmdiGlcqsD/view)
 ![](https://i.imgur.com/UF63auq.jpeg)
+# [- Sakura - ](https://www.mediafire.com/file/8h1zotjhngkn4j1/-_Sakura_-.osk/file)
+![](https://i.imgur.com/xum6Jrl.png)
