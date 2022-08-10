@@ -34,3 +34,5 @@ Skins are in random order.
 ![](https://i.imgur.com/xum6Jrl.png)
 # [- #KoaLigmaQ (Koa)](https://mega.nz/folder/gWwVwKzR#2pwIsA4m_d2I0SfXikynnQ/file/sawHwKgI)
 ![](https://camo.githubusercontent.com/fc9e2aabfcaccbfcdb8f3bf36e9e26f4c898356d35c4adc04b7ecc5eaf4731d9/68747470733a2f2f692e696d6775722e636f6d2f456142375259472e706e67)
+# [- 『BlooMoon』 - {Ryuk v2}](https://drive.google.com/file/d/1F9S-Ly88QDqXtW3OWb2dR8Fuv7Y2bEPL/view)
+![](https://camo.githubusercontent.com/1d9d2a5060bfc912134ddda04f041cefa868a1be8b66e41c5edcf4e2dd7ab230/68747470733a2f2f692e696d6775722e636f6d2f627554457745342e706e67)
