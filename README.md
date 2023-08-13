@@ -37,4 +37,4 @@ Skins are in random order.
 # [- 『BlooMoon』 - {Ryuk v2}](https://drive.google.com/file/d/1F9S-Ly88QDqXtW3OWb2dR8Fuv7Y2bEPL/view)
 ![](https://camo.githubusercontent.com/1d9d2a5060bfc912134ddda04f041cefa868a1be8b66e41c5edcf4e2dd7ab230/68747470733a2f2f692e696d6775722e636f6d2f627554457745342e706e67)
 # [MW - Chiyo Sakura](https://mega.nz/file/hZomCYyB#3artG_Xix_Sm7NSCgpCnrrtwt8IioYvog_RtWJ4TT34)
-![](https://ibb.co/xfLPWQC)
+![](https://i.ibb.co/vQqgp8w/Screenshot-1.png)
