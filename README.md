@@ -46,3 +46,5 @@ Skins are in random order.
 ![](https://i.ibb.co/qrZQxsH/screenshot247.jpg)
 # [- arnold x rafis](https://mega.nz/file/lbZA1LZR#jhJZdMShbFYuIe7teOEwGapSGCI9Hv0kAreNAuiaXoU)
 ![](https://i.ibb.co/ChM0wg2/screenshot248.jpg)
+# [- Selyu RyuK edit](https://snowy.s-ul.eu/v9iKIFOt)
+![](https://i.ibb.co/ChM0wg2/screenshot248.jpg)
