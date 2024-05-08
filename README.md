@@ -50,3 +50,5 @@ Skins are in random order.
 ![](https://i.ibb.co/k9KT9Qc/screenshot249.jpg)
 # [Moyai Balls](https://mega.nz/folder/tZExxLgC#s0iYGczOqcQ5tH8YSe_cuA/file/hZ1GSZoT)
 ![](https://i.ibb.co/QYgCXnB/screenshot250.jpg)
+# [tekkitonowe](https://mega.nz/file/P7BxxSZZ#uWzb1FgKQLPwrEhRZFCw2oERc4SwsA6YWBMjZqntDw0)
+![](https://i.ibb.co/H4bm8Hc/screenshot251.jpg)
