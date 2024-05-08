@@ -48,3 +48,5 @@ Skins are in random order.
 ![](https://i.ibb.co/ChM0wg2/screenshot248.jpg)
 # [- Selyu RyuK edit](https://snowy.s-ul.eu/v9iKIFOt)
 ![](https://i.ibb.co/k9KT9Qc/screenshot249.jpg)
+# [Moyai Balls](https://mega.nz/folder/tZExxLgC#s0iYGczOqcQ5tH8YSe_cuA/file/hZ1GSZoT)
+![](https://i.ibb.co/QYgCXnB/screenshot250.jpg)
