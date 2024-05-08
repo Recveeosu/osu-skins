@@ -52,3 +52,5 @@ Skins are in random order.
 ![](https://i.ibb.co/QYgCXnB/screenshot250.jpg)
 # [tekkitonowe](https://mega.nz/file/P7BxxSZZ#uWzb1FgKQLPwrEhRZFCw2oERc4SwsA6YWBMjZqntDw0)
 ![](https://i.ibb.co/H4bm8Hc/screenshot251.jpg)
+# [asfd](https://mega.nz/folder/BrcmgBqR#YGLADQG3yOTeW_XODdBKAA/file/cvMQ1RqL)
+![](https://i.ibb.co/kMW4hcv/screenshot252.jpg)
