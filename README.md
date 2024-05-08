@@ -40,3 +40,5 @@ Skins are in random order.
 ![](https://i.ibb.co/vQqgp8w/Screenshot-1.png)
 # [《SN》 nick1324 v1.2.1](https://mega.nz/folder/kUlkiZjS#aOlnLPpcLZKBMDSQncPMBw/file/xNlnTIDQ)
 ![](https://i.ibb.co/L1HQ1hX/screenshot237.jpg)
+# [yebalnix2](https://drive.google.com/file/d/1DSAox5MrXkLlEEXvfjdDJok0iLn_IKiZ/view?usp=drive_link)
+![](https://i.ibb.co/tmYmMh3/screenshot241.jpg)
