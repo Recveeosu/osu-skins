@@ -42,3 +42,5 @@ Skins are in random order.
 ![](https://i.ibb.co/L1HQ1hX/screenshot237.jpg)
 # [yebalnix2](https://drive.google.com/file/d/1DSAox5MrXkLlEEXvfjdDJok0iLn_IKiZ/view?usp=drive_link)
 ![](https://i.ibb.co/tmYmMh3/screenshot241.jpg)
+# [tko](https://www.dropbox.com/scl/fi/zn8jo3ekpwkl3bn11sefz/tko.osk?rlkey=i3ie7kl2jvc55anogap9297hu&e=1&dl=0)
+![](https://i.ibb.co/c36MJpC/screenshot245.jpg)
