@@ -11,7 +11,7 @@ Skins are in random order.
 # [SameSkinButNoFollowPoint edit](https://drive.google.com/file/d/1KMMIwyu1p9pK7AqZOHx_KdDGg6gIUf6W/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/16911575/658b)
 # [mathi ensalada (Andros edit)](https://www.mediafire.com/file/6rvbku22pyag6vs/mathi_ensalada_%28Andros_edit%29.osk/file)
-![](https://i.ibb.co/jfG0VPs/screenshot223.jpg)
+![](https://i.ibb.co/wphdGdG/screenshot223.jpg)
 # [MonkoPring](https://monko.s-ul.eu/ivkMRcKs)
 ![](https://osu.ppy.sh/ss/16911609/3147)
 # [Aristia(Edit)+trail](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
