@@ -44,3 +44,5 @@ Skins are in random order.
 ![](https://i.ibb.co/tmYmMh3/screenshot241.jpg)
 # [tko](https://www.dropbox.com/scl/fi/zn8jo3ekpwkl3bn11sefz/tko.osk?rlkey=i3ie7kl2jvc55anogap9297hu&e=1&dl=0)
 ![](https://i.ibb.co/qrZQxsH/screenshot247.jpg)
+# [- arnold x rafis](https://mega.nz/file/lbZA1LZR#jhJZdMShbFYuIe7teOEwGapSGCI9Hv0kAreNAuiaXoU)
+![](https://i.ibb.co/ChM0wg2/screenshot248.jpg)
