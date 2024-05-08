@@ -38,3 +38,5 @@ Skins are in random order.
 ![](https://i.ibb.co/hRH6CTY/screenshot236.jpg)
 # [MW - Chiyo Sakura](https://mega.nz/file/hZomCYyB#3artG_Xix_Sm7NSCgpCnrrtwt8IioYvog_RtWJ4TT34)
 ![](https://i.ibb.co/vQqgp8w/Screenshot-1.png)
+# [《SN》 nick1324 v1.2.1](https://mega.nz/folder/kUlkiZjS#aOlnLPpcLZKBMDSQncPMBw/file/xNlnTIDQ)
+![](https://i.ibb.co/L1HQ1hX/screenshot237.jpg)
