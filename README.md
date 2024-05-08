@@ -27,7 +27,7 @@ Skins are in random order.
 # [azer8midnight chitanda edit with followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://i.ibb.co/6DZS0DH/screenshot230.jpg)
 # [Amaestric 1.1](http://www.mediafire.com/file/bzv2mm3cbweht1e/Abyssal_10-02-2018.osk/file)
-![](https://skins.osuck.net/uploads/posts/2018-09/1537794922_cpoih6g.jpg)
+![](https://i.ibb.co/DC83S0p/screenshot231.jpg)
 # [GanyuTeks:Futur Céleste](https://drive.google.com/file/d/1iUMfBUmwdKqpQ11xSOSNLtjmdiGlcqsD/view)
 ![](https://i.imgur.com/UF63auq.jpeg)
 # [- Sakura - ](https://www.mediafire.com/file/8h1zotjhngkn4j1/-_Sakura_-.osk/file)
