@@ -56,3 +56,5 @@ Skins are in random order.
 ![](https://i.ibb.co/kMW4hcv/screenshot252.jpg)
 # [azerino](https://b.cgas.io/erkVMtXcyDiq.osk)
 ![](https://i.ibb.co/SPZR3fp/screenshot254.jpg)
+# [BubbleSkinDT](https://mega.nz/file/5I0w0CZQ#ykrdQGQf_j8L7Z_7AADHYdYwkk09bttt91QS-kwfkh8)
+![](https://i.ibb.co/YNQzxsN/screenshot255.jpg)
